@@ -2,6 +2,9 @@
 ## Cubrombul
 **ot prim**
 *Pescado de fornait*
+
+
+
 Notes:
 1. 1
 2. 3
@@ -14,7 +17,12 @@ Notes:
 - 10
 - 1
 - 8
+
+  
 ![Ca](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWvjHBTM3PV5cajxo3i98x52ZeEnlFjkndqPmbcjTdFg&s)
+
+
+
 [no se bro](https://www.ef.com.es/)
   
   
