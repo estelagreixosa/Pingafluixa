@@ -9,17 +9,15 @@ Notes:
 1. 1
 2. 3
 3. 5
-4. 8
-5. 10
+4. 10
 
 - 5
 - 3 
 - 10
 - 1
-- 8
 
   
-![Ca](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWvjHBTM3PV5cajxo3i98x52ZeEnlFjkndqPmbcjTdFg&s)
+![moix](https://i.ytimg.com/vi/sJeuWZNWImE/hqdefault.jpg?sqp=-oaymwEmCOADEOgC8quKqQMa8AEB-AHeA4AC4AOKAgwIABABGGUgWShSMA8=&rs=AOn4CLDM34IVhs45cMLa6ejsOkkmpTKMhQ)
 
 
 
